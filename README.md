@@ -1,3 +1,3 @@
 # reporish47 branch3
-where you learn everythin
-it is a project main
+where you learn everything
+it is a project for everyone
